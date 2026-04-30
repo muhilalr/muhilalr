@@ -12,7 +12,7 @@ An individual who is enthusiastic about exploring the world of information techn
 
 ### 📫 Let's Connect
 
-*   **LinkedIn:** [linkedin.com/in/muhammad-hilal-ramadhan](www.linkedin.com/in/muhammad-hilal-ramadhan)
+*   **LinkedIn:** [linkedin.com/in/muhammad-hilal-ramadhan](https://www.linkedin.com/in/muhammad-hilal-ramadhan/)
 *   **Email:** muhammadhilalra@gmail.com
 
 ---
