@@ -41,4 +41,3 @@ An individual who is enthusiastic about exploring the world of information techn
 *   **Email:** muhammadhilalra@gmail.com
 
 ---
-⭐️ *From Pangkalpinang with Code*
